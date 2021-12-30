@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ray Namorado
-- 👀 I’m interested in Good Conscience this Predicaments.  
+- 👀 I’m interested in Good Conscience this knowledge  
 - 🌱 I’m currently learning Creating Conscience of World.
 - 💞️ I’m looking to collaborate on Technology, translate, Communication, and Energies Renovates.
 - 📫 How to reach me ... His Grate for email. raynamorado77@gmail.com and rayonamorado3@gmail.com
